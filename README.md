@@ -1,4 +1,6 @@
-hello!!
+hello!! 
+
+DNI PROSHIP , DAYS UNION , & DSMP. YOU FUCKERS SMELL RANCID.
 
 not going to make this all fancy for now, just going to give the basics.
 c+h (cuddle plus hide) on ponytown is WELCOMED ALL DAY EVERYDAY! i'm a bit of an awkward, reserved person so i might not say much but i still appreciate when people sit with me.
