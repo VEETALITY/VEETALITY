@@ -1,6 +1,6 @@
 hello!! 
 
-DNI PROSHIP & DSMP. YOU FUCKERS SMELL RANCID.
+DNI PROSHIP & DSMP. UNAPOLOGETICALLY FUCK OFF!
 
 not going to make this all fancy for now, just going to give the basics.
 c+h (cuddle plus hide) on ponytown is WELCOMED ALL DAY EVERYDAY! i'm a bit of an awkward, reserved person so i might not say much but i still appreciate when people sit with me.
