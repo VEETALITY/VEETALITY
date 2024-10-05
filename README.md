@@ -8,7 +8,7 @@ c+h (cuddle plus hide) on ponytown is WELCOMED ALL DAY EVERYDAY! i'm a bit of an
 w2i (whisper to interact) is preferred, because i am usually tabbed out and will feel bad if i find out you said something to me and i missed it. it has happened countless times before.
 
 big into a lot of things, mainly PHIGHTING (banhammer main).. my favorite character(s) are valk, venomshank, windforce, and subspace! a majority of my favorite characters are NPCs it's kind of funny. yes this is important information it had to be shared.
-*anyways would absolutely shit bricks if one of those aformentioned fellas stopped by... that's just a suggestion, though! also i engage in oc x canon so... heh... im normal LFMLASPOSDAOPK*
+*anyways would absolutely shit bricks if one of those aformentioned fellas stopped by... that's just a suggestion, though! just a wee little joke!*
 
  i despise people who talk down on others just for having innocent fun. like you freaks are SO miserable so you have to make sure everyone else around you feels as badly as you do. it's insanely weird! (this is oddly specific BECAUSE i've seen it happen and it's just extremely cringe. i dont vibe w/ that shit AT ALL.)
 
