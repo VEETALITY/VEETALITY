@@ -1,4 +1,4 @@
-hello!! 
+hello!! [p.s. added]
 
 DNI PROSHIP & DSMP. UNAPOLOGETICALLY FUCK OFF!
 
@@ -16,6 +16,7 @@ big into a lot of things, mainly PHIGHTING (banhammer main).. my favorite charac
 
  that's all, see ya! maybe consider leaving a message on my atabook OR checking out my sentry! thanks for reading. :-) <3
 
+p.s. i read ALL of my atabook messages n' pt whispers!! if i dont respond, it's not personal, sometimes i get nervous and don't know how to respond without seeming like an oddball. but trust me i see them all and they make me smile. :-)
 
 <!--
 **VEETALITY/VEETALITY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
