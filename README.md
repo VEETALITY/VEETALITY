@@ -9,6 +9,8 @@ w2i (whisper to interact) is preferred, because i am usually tabbed out and will
 
 i am vaguely involved with a lot of fandoms, but most noteably beastars right now. *HUUUGE MELON FAN!* if you are genuinely interested in knowing all of my fandoms/or just want to see if we have any in common, feel free to ask. i *really* don't mind.
 
+truly i do not give a flying fuck if you "take inspo" from my creations, so long as you don't just directly copy it detail-for-detail and color-for-color. i'd actually be happy knowing someone was inspired enough by *my* creations to use it as a reference.
+
  i despise people who talk down on others just for having innocent fun. like you freaks are SO miserable so you have to make sure everyone else around you feels as badly as you do. it's insanely weird! (this is oddly specific BECAUSE i've seen it happen and it's just extremely cringe. i dont vibe w/ that shit AT ALL.)
 
  if i get comfortable around you, i'll probably get excited very easily... especially if you enjoy something that i enjoy. like i'll slap my keyboard so hard i'll accidentally open 5 different tabs while simultaneously closing pony town. it's happened, it's possible.
