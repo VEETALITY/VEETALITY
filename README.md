@@ -1,6 +1,6 @@
 hello!! [p.s. added]
 
-DNI PROSHIP & DSMP. UNAPOLOGETICALLY FUCK OFF!
+DNI PROSHIP & PROBLEMATICS , UNAPOLOGETICALLY FUCK OFF! YOU KNOW WHO YOU ARE.
 
 not going to make this all fancy for now, just going to give the basics.
 c+h (cuddle plus hide) on ponytown is WELCOMED ALL DAY EVERYDAY! i'm a bit of an awkward, reserved person so i might not say much but i still appreciate when people sit with me.
