@@ -7,7 +7,7 @@ c+h (cuddle plus hide) on ponytown is WELCOMED ALL DAY EVERYDAY! i'm a bit of an
 
 w2i (whisper to interact) is preferred, because i am usually tabbed out and will feel bad if i find out you said something to me and i missed it. it has happened countless times before.
 
-i am vaguely involved with a lot of fandoms, but most noteably deltarune right now. if you are genuinely interested in knowing all of my fandoms/or just want to see if we have any in common, feel free to ask. i *really* don't mind.
+i am vaguely involved with a lot of fandoms, but most noteably fnaf and mystery incorporated right now. if you are genuinely interested in knowing all of my fandoms/or just want to see if we have any in common, feel free to ask. i *really* don't mind.
 
 truly i do not give a flying fuck if you "take inspo" from my creations, so long as you don't just directly copy it detail-for-detail and color-for-color. i'd actually be happy knowing someone was inspired enough by *my* creations to use it as a reference.
 
