@@ -14,6 +14,8 @@ If i get comfortable around you (rare occurrence), i'll probably get excited ver
 
 im in like 500 fandoms, though right now ive entered the pits of hell and have become obsessed with wreck it ralph (specifically turbo. im severely attached. help.) so if you're interested in seeing if we have common interests, just go ahead and ask me! i will not mind
 
+MORE OFTEN THAN NOT, I WILL NOT GIVE PEOPLE MY SOCIALS. ESPECIALLY MY DISCORD. THAT IS A BIG NO NO UNLESS I TRUST YOU ENOUGH. YOU'RE FREE TO ASK FOR ANY OF MY SOCIALS BUT YOU'RE LIKELY GOING TO BE DENIED. SORRY!
+
 THATS ALL!!! thanks for reading my yapfest, i appreciate it! while you're here, maybe leave a funny little message on my atabook or check out my ugly little rentry. i might not respond to every comment, but i read them all and they make me smile. thank you!
 
 bye-bye!! ;-]
