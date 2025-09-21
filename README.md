@@ -1,23 +1,22 @@
-hello!! [p.s. added]
+hello hello!!
 
-DNI PROSHIP & PROBLEMATICS , UNAPOLOGETICALLY FUCK OFF! YOU KNOW WHO YOU ARE.
+DNI PROSHIP & ANYTHING/ANYBODY REMOTELY PROBLEMATIC. UNAPOLEGETICALLY, FUCK OFF!
 
-not going to make this all fancy for now, just going to give the basics.
-c+h (cuddle plus hide) on ponytown is WELCOMED ALL DAY EVERYDAY! i'm a bit of an awkward, reserved person so i might not say much but i still appreciate when people sit with me.
+c+h is welcomed anytime! i adore when people sit with me, its strangely comforting. HOWEVER please be aware i am rather reserved and closed off, meaning i likely won't attempt to keep a conversation going and would rather just sit quietly and relax.
 
-w2i (whisper to interact) is preferred, because i am usually tabbed out and will feel bad if i find out you said something to me and i missed it. it has happened countless times before.
+if i stop talking to you mid conversation, i promise you didn't do anything wrong! its not personal, i just run out of things to say and forming continuous automated responses becomes an.. awkward thing for me. i am better at one-off conversations where we exchange a few words and return to silence. that is unfortunately just how i am!
 
-i am vaguely involved with a lot of fandoms, but most noteably fnaf and wreck it ralph (unfortunately) right now. if you are genuinely interested in knowing all of my fandoms/or just want to see if we have any in common, feel free to ask. i *really* don't mind.
+w2i is PREFERRED as i am usually tabbed out / making something and if someone says something to me and i miss it i will feel horrible for inadvertently ignoring them. it is something that happens with me a lot. :-(
 
-truly i do not give a flying fuck if you "take inspo" from my creations, so long as you don't just directly copy it detail-for-detail and color-for-color. i'd actually be happy knowing someone was inspired enough by *my* creations to use it as a reference.
+TAKE INSPIRATION FOR MY CHARACTERS ALL YOU WANT! I HONESTLY DON'T MIND IT! i'm happy enough knowing that my creations could spark inspiration for others to use it as a reference. just please, PLEASE, do not copy it color-for-color and detail-for-detail. be creative with your inspiration, don't just make a copy. 
 
- i despise people who talk down on others just for having innocent fun. like you freaks are SO miserable so you have to make sure everyone else around you feels as badly as you do. it's insanely weird! (this is oddly specific BECAUSE i've seen it happen and it's just extremely cringe. i dont vibe w/ that shit AT ALL.)
+If i get comfortable around you (rare occurrence), i'll probably get excited very easily ... especially if you enjoy something that i enjoy. like i'll slap my keyboard so hard i'll accidentally open 5 different tabs while simultaneously closing pony town. it's happened, it's possible. its incredibly funny.
 
- if i get comfortable around you, i'll probably get excited very easily ... especially if you enjoy something that i enjoy. like i'll slap my keyboard so hard i'll accidentally open 5 different tabs while simultaneously closing pony town. it's happened, it's possible.
+im in like 500 fandoms, though right now ive entered the pits of hell and have become obsessed with wreck it ralph (specifically turbo. im severely attached. help.) so if you're interested in seeing if we have common interests, just go ahead and ask me! i will not mind
 
- that's all, see ya! maybe consider leaving a message on my atabook ... thanks for reading. ;-D
+THATS ALL!!! thanks for reading my yapfest, i appreciate it! while you're here, maybe leave a funny little message on my atabook or check out my ugly little rentry. i might not respond to every comment, but i read them all and they make me smile. thank you!
 
-p.s. i read ALL of my atabook messages n' pt whispers!! if i dont respond, it's not personal, sometimes i get nervous and don't know how to respond without seeming like an oddball. but trust me i see them all and they make me smile. :-)
+bye-bye!! ;-]
 
 <!--
 **VEETALITY/VEETALITY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
