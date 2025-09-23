@@ -18,6 +18,8 @@ MORE OFTEN THAN NOT, I WILL NOT GIVE PEOPLE MY SOCIALS. ESPECIALLY MY DISCORD. T
 
 THATS ALL!!! thanks for reading my yapfest, i appreciate it! while you're here, maybe leave a funny little message on my atabook or check out my ugly little rentry. i might not respond to every comment, but i read them all and they make me smile. thank you!
 
+p.s. if you see me on the pg server of pony town, im usually just keeping a friend company! im not there with ill intentions.
+
 bye-bye!! ;-]
 
 <!--
