@@ -12,7 +12,7 @@ TAKE INSPIRATION FOR MY CHARACTERS ALL YOU WANT! I HONESTLY DON'T MIND IT! i'm h
 
 If i get comfortable around you (rare occurrence), i'll probably get excited very easily ... especially if you enjoy something that i enjoy. like i'll slap my keyboard so hard i'll accidentally open 5 different tabs while simultaneously closing pony town. it's happened, it's possible. its incredibly funny.
 
-im in like 500 fandoms, though right now ive entered the pits of hell and have become obsessed with wreck it ralph (specifically turbo. im severely attached. help.) so if you're interested in seeing if we have common interests, just go ahead and ask me! i will not mind
+im in like 500 fandoms, though right now im currently being tormented by cookie run! but if you're interested in seeing if we have common interests, just go ahead and ask me! i will not mind
 
 MORE OFTEN THAN NOT, I WILL NOT GIVE PEOPLE MY SOCIALS. ESPECIALLY MY DISCORD. THAT IS A BIG NO NO UNLESS I TRUST YOU ENOUGH. YOU'RE FREE TO ASK FOR ANY OF MY SOCIALS BUT YOU'RE LIKELY GOING TO BE DENIED. SORRY!
 
