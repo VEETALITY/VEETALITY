@@ -8,7 +8,7 @@ if i stop talking to you mid conversation, i promise you didn't do anything wron
 
 w2i is PREFERRED as i am usually tabbed out / making something and if someone says something to me and i miss it i will feel horrible for inadvertently ignoring them. it is something that happens with me a lot. :-(
 
-TAKE INSPIRATION FOR MY CHARACTERS ALL YOU WANT! I HONESTLY DON'T MIND IT! i'm happy enough knowing that my creations could spark inspiration for others to use it as a reference. just please, PLEASE, do not copy it color-for-color and detail-for-detail. be creative with your inspiration, don't just make a copy. 
+TAKE INSPIRATION FROM MY CHARACTERS ALL YOU WANT! I HONESTLY DON'T MIND IT! i'm happy enough knowing that my creations could spark inspiration for others to use it as a reference. just please, PLEASE, do not copy it color-for-color and detail-for-detail. be creative with your inspiration, don't just make a copy. 
 
 If i get comfortable around you (rare occurrence), i'll probably get excited very easily ... especially if you enjoy something that i enjoy. like i'll slap my keyboard so hard i'll accidentally open 5 different tabs while simultaneously closing pony town. it's happened, it's possible. its incredibly funny.
 
