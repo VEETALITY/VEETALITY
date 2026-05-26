@@ -4,7 +4,7 @@ this is mainly for pony town, so if you aren't here for that then you're better 
 
 c+h is welcomed anytime!  HOWEVER please be aware i am rather reserved and closed off, meaning i likely won't attempt to keep a conversation going and would rather just sit quietly and spectate. or tab out and do other things.
 
-if i stop talking to you mid conversation, i promise you didn't do anything wrong! its not personal, i just run out of things to say and forming continuous automated responses becomes an.. awkward thing for me. i am better at one-off conversations where we exchange a few words and return to silence. that is unfortunately just how i am!
+i like people-watching but anybody is welcome to try and chat to me. preferably in /whisper chat but if you know i'm actively looking at the game, anybody is welcome to stop by! if i dont say anything, it isn't personal, i might just be afk or not in the mood to force a response out.
 
 feel free to take inspiration from anything you see of mine, whether it be my ponies, layouts, etc, i really could not care less. if anything i'd be flattered. just don't copy it detail-for-detail, you're supposed to be creative, not just make an exact clone of your inspiration.
 
